@@ -12,7 +12,7 @@
 - **Tools:** Git, GitHub, VS Code
 
 ### 📫 Let's Connect
-- LinkedIn: (tujha link ithe tak)
-- Email: (tujha email ithe tak)
+- LinkedIn: (https://linkdin.com/in/akshada-pandit)
+- Email: (akshadapandit.*****@gmail.com)
 
 ✨ _Always learning something new!_
